@@ -1,1 +1,0 @@
-# bahtyyy.github.io
